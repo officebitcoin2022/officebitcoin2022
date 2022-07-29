@@ -6,10 +6,10 @@
 
 
 
-Bitcoin2022 is reshaping the entire ecology where users may trade digitally from anywhere in the globe for a cheap transaction cost that is almost free, allowing for a very liberating, strategic, low-risk, and frictionless trading experience in a fully decentralized manner using BITCOIN2022.
+#### Bitcoin2022 is reshaping the entire ecology where users may trade digitally from anywhere in the globe for a cheap transaction cost that is almost free, allowing for a very liberating, strategic, low-risk, and frictionless trading experience in a fully decentralized manner using BITCOIN2022.
 
 This community-oriented money rewards its holders by redistributing it to others. As part of the decision-making process, community members are also included to give them a sense of ownership over their assets. 
-July, August and September we will take care of what the token creation part means, presale, all social network, airdrop and everything that means stabilizing this project
+July, August and September we will take care of what the token creation part means, presale, all social network, airdrop and everything that means stabilizing this project ####
 
 
 
