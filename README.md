@@ -6,7 +6,7 @@
 
 
 
-#### Bitcoin 2022 BTC2022 is a crypto token based on Binance smart chain. Why did we choose Binance Smart Chain? For safety, transparency and low fees. The benefit and purpose of this project is to accelerate the growth of the crypto space, giving the chance to those who will use our short video mobile application to earn Bitcoin (BTCB) and at the same time be able to store it or pay with the wallet created by us . Investors can use BTC2022 services to earn dividends in BTCB (3%) from all transactions, without the need for a stake. <br>
+#### BTC2022 is a crypto token based on Binance smart chain. Why did we choose Binance Smart Chain? For safety, transparency and low fees. The benefit and purpose of this project is to accelerate the growth of the crypto space, giving the chance to those who will use our short video mobile application to earn Bitcoin (BTCB) and at the same time be able to store it or pay with the wallet created by us . Investors can use BTC2022 services to earn dividends in BTCB (3%) from all transactions, without the need for a stake. <br>
 #### The first version of BTC2022 allows startups to launch and manage a short video sharing app PROTECTION OF INVESTORS' INTERESTS While we are witnessing the evolution of BTC2022, we also care about the investors whose money we want to protect as much as possible. Liquidity will be closed until the mobile app is launched. Everything about BTC2022 will be transparent and there will be no hidden parts of this project. • 3% rewards in BTCB • 2% LIQUIDITY • 2% BUY and burn • 3% Marketing BTC2022 TOKEN STRUCTURE The BTC2022 token structure is based on this model: 70% distributed to the community 15% reserved financing 9% Founders and team 3% Advisors 3% Bounty Campaign.
 
 
